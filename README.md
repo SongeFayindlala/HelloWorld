@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱 I’m currently learning ethical hacking<br>💬 Ask me about anything tech<br>⚡ Fun fact I am a geek
+🌱 I’m currently learning Microsoft Power Platform<br>💬 Ask me about anything tech<br>⚡ Fun fact I am a geek
 
 
 ## 🌐 Socials:
